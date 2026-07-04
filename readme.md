@@ -76,7 +76,7 @@ Create a monthly social media content calendar for a fictional brand using Googl
 
 ## 👤 Author
 
-**Manju Bobbili**
+**Mytri Manju Sri Bobbili**
 
 **Digital Marketing Intern**
 **SkillCraft Technology**
